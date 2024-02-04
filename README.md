@@ -1,0 +1,2 @@
+# valentiness
+rozaje ne postoji
